@@ -5,4 +5,4 @@ LIFE IS AWESOME:
 
 AMANDEEP KAUR
 1794977
-life is colourful
+life is good.
